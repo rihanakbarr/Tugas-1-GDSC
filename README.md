@@ -1,1 +1,1 @@
-# Tugas-1-GDSC
+# Saya sangat pemula ka, maka dari itu ini hasil semampunya saya.
